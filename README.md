@@ -1,2 +1,0 @@
-# xcl
-XCL SCRİPT PANEL
