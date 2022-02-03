@@ -1,6 +1,6 @@
 # xcl
 〰️〰️XCL SCRİPT PANEL〰️〰️
 
-🗝️ V3.0 ŞİFRE : BRUTAL
+🗝️ V4.0 ŞİFRE : VERYSAFE
 
 🍁 İYİ EĞLENCELER 🍁
