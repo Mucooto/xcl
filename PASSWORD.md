@@ -1,6 +1,6 @@
 # xcl
 〰️〰️XCL SCRİPT PANEL〰️〰️
 
-🗝️ V5.0 ŞİFRE : XCL
+🗝️ V6.0 ŞİFRE : X-CL
 
 🍁 İYİ EĞLENCELER 🍁
